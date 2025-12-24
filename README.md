@@ -5,7 +5,7 @@
 
 最新公告：
 
-	https://www.cnblogs.com/usyd/articles/19056870
+https://www.cnblogs.com/usyd/p/19392553
 	
 	
 # 近期被官方针对了一波，QQ群和闲鱼1-3老店都被封禁了。老用户切勿在闲鱼老店转账交易，谢谢理解。
