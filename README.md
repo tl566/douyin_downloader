@@ -39,10 +39,6 @@ https://t.me/+_3rhEtjaQElhMTgx
 免费福袋池较少的情况下，VIP福袋池和免费版福袋池会智能调度融合以满足用户正常需求。
 
 
-针对工作室用户的扭蛋机精英版本近期发布：
-
-https://www.cnblogs.com/usyd/p/19360451
-
 
 
 # v5.1.2
